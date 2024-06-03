@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vinilucenasouza
-- 👀 I’m interested in children stuff
+- 👀 I’m interested in children learning process stuff
 - 🌱 I’m currently learning dad stuff
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me vinicius.lucena@viasat.com
